@@ -1,1 +1,1 @@
-# myproject
+# Aida Amanzhan
